@@ -10,3 +10,5 @@ _Quem se interessar pode falar comigo🤝_
 
 **_00001111774821sp@al.educacao.sp.gov.br_**
 
+![](https://media1.tenor.com/m/oo5385iBNpQAAAAC/mochi_cat-peach_cat.gif)
+
